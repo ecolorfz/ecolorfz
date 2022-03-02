@@ -11,3 +11,6 @@
 💬Welcome! Pinerice ,lazy,would not go out of home. Her biggest wish is to own both a cat and a dog, and also best cameras~
 
 Have a good day~📫 
+Contact me:
+ecolorfz@163.com
+minghaozheng53@gmail.com
