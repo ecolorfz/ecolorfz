@@ -1,7 +1,7 @@
 ### Hi there 👋 
 
 - 🤔 I’m currently learning ...I don' t know either
-- 🔭 Ask me about :ANYTHING
+- 🔭 Ask me about :ANYTHING[here](https://github.com/ecolorfz/ecolorfz/issues)
 - 😄 Pronouns: 可愛いね
 - ⚡ Fun fact: 呜呜~哭包~|想变强壮|INFP|Pinerice读作/,pɪne'lɪs/
 
