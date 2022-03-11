@@ -3,7 +3,7 @@
 - 🤔 I’m currently learning ...I don' t know either
 - 🔭 Ask me about :ANYTHING [here](https://github.com/ecolorfz/ecolorfz/issues)
 - 😄 Pronouns: 可愛いね
-- ⚡ Fun fact: 呜呜~哭包~|想变强壮|INFP|Pinerice读作/,pɪne'lɪs/|ecolorfz以/'e/开头
+- ⚡ Fun fact: 呜呜~哭包~|想变强壮|INFP|Pinerice读作/pɪ,ne'lɪs/|ecolorfz以/'e/开头
 - 中文常用ID:街角的菠萝饭，因为某家开在街角的泰国餐馆里的菠萝饭真的很好吃，忘不掉
 
 👯欢迎访问与留言！Pinerice是一个宅人，她的心愿是猫狗双全，相机自由~
