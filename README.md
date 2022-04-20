@@ -14,4 +14,4 @@
 Have a good day~📫 
 Contact me:
 ecolorfz@163.com
-minghaozheng53@gmail.com
+ecolorfz@outlook.com
