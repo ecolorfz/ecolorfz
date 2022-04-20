@@ -1,6 +1,6 @@
 ### Hi there 👋 
 
-- 🤔 I’m currently learning ...I don' t know either
+- 🤔 I’m currently learning ...computer graphic,distrubuted system and web3 tech（primary stage,for fun as undergraduate) 
 - 🔭 Ask me about :ANYTHING [here](https://github.com/ecolorfz/ecolorfz/issues)
 - 😄 Pronouns: 可愛いね
 - ⚡ Fun fact: 呜呜~哭包~|想变强壮|INFP|Pinerice读作/pɪ,ne'lɪs/|ecolorfz以/'e/开头
